@@ -1,4 +1,4 @@
-
+aura ascension Scripts stealth is the best aura ascension Script, featuring anti-ban and no cooldown. Safe and powerful for all your needs.
 
 
 
